@@ -1,5 +1,7 @@
 Chapter 2
 
+![trappist](https://solarsystem.nasa.gov/system/news_items/main_images/335_trappist-1.jpg)
+ 
 Snoof-Snat
 
 This exoplanet orbits around an ultracool dwarf star known as TRAPPIST-1, which lies approximately 40 light-years away from Earth in the constellation of Aquarius. TRAPPIST-1d also resides within the habitable zone around its star.
