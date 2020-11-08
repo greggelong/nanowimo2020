@@ -33,4 +33,5 @@ So again I review the advertisement.  The Vic 20 is more than a game.  This will
 Oh yes, why was I wasting all this time on a Monday morning daydreaming of computer interaction. It part it was of course my first day at a new school.  Having only Captain Kirk in my head and a Star Wars lunch box I was to head out into a difficult world of  strange new names and new interactions.  Oh yes I forgot to mention I am also fat. 
 
 [Chapter 2](chapter-2.md)
+
 [home](README.md)
