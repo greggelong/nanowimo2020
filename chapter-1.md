@@ -31,3 +31,6 @@ So there you have it a key board and a tape player on a desk. That’s the compu
 So again I review the advertisement.  The Vic 20 is more than a game.  This will allow me more control    I can now choose what pixels I put on the screen and where to put them.  I can control the imputes to the computer.  But how can you do that.  I had a some idea at the time.  An idea largely formed from popular culture and shows on pbs.  There is a way to talk to computers.  I you use a language.  The chance to actually talk to a computer was to me a first contact.  A chance to interact with a computer brain.  It was really ever bit as exciting as the a magical ability to talk to animals or contact with an alien intelligence .  This conversation would give me the power to control pixels to make some models of the world. Models of my mind. Like the snap-tight model of the human body.  I would have control of the world on the screen just as I was loosing control of the world around me.  
 
 Oh yes, why was I wasting all this time on a Monday morning daydreaming of computer interaction. It part it was of course my first day at a new school.  Having only Captain Kirk in my head and a Star Wars lunch box I was to head out into a difficult world of  strange new names and new interactions.  Oh yes I forgot to mention I am also fat. 
+
+[Chapter 2](chapter-2.md)
+[home](README.md)
