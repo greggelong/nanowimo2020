@@ -17,6 +17,8 @@ This was the reason the reason the advertisement was folded open. This was the r
 
 The first and most obvious part that would allow greater control was the keyboard.  We had a portable typewriter at home. My sister and I would play, sometimes bashing our hands on most of the keys at one jamming them together before they hit the paper. Or even more fun, repeatedly hitting the space bar until the carriage bell rang. Then we would abruptly smack the carriage return back to the starting position.  It was behavior like this that gave our mother second thoughts about investing in any thing too expensive. 
 
+![calc](https://tse1-mm.cn.bing.net/th/id/OIP.VYOkwDKyUJ-5p7U5ft3H3AHaDt?pid=Api&rs=1)
+
 The only other thing with keys in the house was the Texas instruments calculator.  We treated that with a bit more care our mother saw to that.   The calculator had a sleek black shell and red LED display.  It reminded me of Darth Vader’s helmet or a model of a shuttle craft from the distant future.   It came with a wonderful book Math on Keys book. The calculator was a couple of years old and the style of the book was firmly in the seventies.  Although this was cutting edge technology the book was illustrated with block print pictures that seemed to come from ancient texts.   My sister and I looked through the book with reverence like it was a bible. It had some exercise that were accessible to children.  But an important part of the book was instruction on how to enter the commands. The order was very important.     
 
 So here in bed looking at this add I feel degrees of freedom opening up through the key board. 
