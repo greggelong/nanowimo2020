@@ -1,7 +1,7 @@
 
 I open my eyes and look around the room. I can see it’s already morning as light floods  the room in a pomegranate hue.  Star Wars toys litter the floor mixed with dirty clothes and candy wrappers.  My home work untouched since I spread it out on Friday night.  I look to the ceiling and watch the plywood  pterodactyl model gently spin in the breeze  of the open window.  I rub my eyes and stretch in bed knocking the copy of Omni magazine folded open to an advertisement.  Before sitting up I take the add that fulled my electronic dreams. 
 
-![kirkadd](kirkadd.jpeg)
+![kirkadd](https://tse3-mm.cn.bing.net/th/id/OIP.vSMTVugAJQgRnzRQRoPxzwHaJn?pid=Api&rs=1)
    
 Captain Kirk, arm out-stretched was introducing me to the future. He wisely remarks, “Why buy just a video game?, For under 300 dollars get the Commodore Vic-20
 the wonder computer of the 1980” 
