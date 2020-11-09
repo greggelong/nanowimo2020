@@ -1,9 +1,5 @@
 
- You are inside.  I am outside.
-I am not going to tell you directly how to get out. I couldn’t even if I wanted to.  The path has to be generated in real time taking into account information I, on the outside, cannot access.  I can help you form a plan. But it is really up to you.
-
-
-
+Chapter 1
 
 I open my eyes and look around the room. I can see it’s already morning as light floods  the room in a pomegranate hue.  Star Wars toys litter the floor mixed with dirty clothes and candy wrappers.  My homework untouched since I spread it out on Friday night.  I look to the ceiling and watch the plywood  pterodactyl model gently spin in the breeze  of the open window.  I rub my eyes and stretch in bed knocking the copy of Omni magazine folded open to an advertisement.  Before sitting up I take the add that fulled my electronic dreams. 
 
