@@ -11,6 +11,6 @@ I relax my plates and slowly the red afternoon lights floods my vision. Squirmin
 I daydream about how wonderful it would be to have one of these stones.  I really have very few possessions several humming shell animals and the flute. But if you ask me I spend all my time with my ear hole jammed up against the central education pipe grunting back and forth the important collected data of our ancestors.  How great it would be to have a quiet brain to communicate with. 
 
 
-[Chapter 2](chapter-3.md)
+[Chapter 3](chapter-3.md)
 
 [home](README.md)
