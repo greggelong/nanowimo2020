@@ -16,7 +16,7 @@ These games reflected the dreams of my youth for alien contact and flying in a s
 
 I could control these pixels within the limits of the game.  I could weave my tank through the maze in Tank Battle. I could move my ship to the left and right in space invaders.  I could fly my ship over the doughnut of a playing field in Asteroids.  I could place mid air bombs  on the screen in Missile Command.   But there was a limit to my control.  I wanted more control.
 
-This was the reason the reason the advertisement was folded open. This was the reason I was reading every word of its text.  Analyzing the picture carefully to try and understand the this computer.  
+This was the reason the reason the advertisement was folded open. This was the reason I was reading every word of its text.  Analyzing the picture carefully to try and understand this computer.  
 
 The first and most obvious part that would allow greater control was the keyboard.  We had a portable typewriter at home. My sister and I would play, sometimes bashing our hands on most of the keys at one jamming them together before they hit the paper. Or even more fun, repeatedly hitting the space bar until the carriage bell rang. Then we would abruptly smack the carriage return back to the starting position.  It was behavior like this that gave our mother second thoughts about investing in any thing too expensive. 
 
