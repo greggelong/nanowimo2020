@@ -7,4 +7,8 @@ I am not going to tell you directly how to get out. I couldn’t even if I wante
 
 ![vic-20](http://www.oldcomputers.net/pics/vic20.jpg)
 
-[Chapter1](chapter-1.md)
+[Chapter 1](chapter-1.md)
+
+[Chapter 2](chapter-2.md)
+
+[Chapter 3](chapter-3.md)
