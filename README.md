@@ -1,4 +1,4 @@
-# nanowimo2020
+# nanowrimo2020
 National Novel Writing Month 2020
 
 
