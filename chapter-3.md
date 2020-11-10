@@ -21,4 +21,6 @@ So we decided to compromise with each other and the dead.  We would each make a 
 
 As I finish up my breakfast my sister comes in.  It is her first day in the new school too.  She does not seem too bothered by meeting new people. Anyway we have at least both met one new person/ghost Mary Martha Landsdown.
 
+[Chapter 4](chapter-4.md)
+
 [Home](README.md)
