@@ -12,3 +12,6 @@ I am not going to tell you directly how to get out. I couldn’t even if I wante
 [Chapter 2](chapter-2.md)
 
 [Chapter 3](chapter-3.md)
+
+[Chapter 4](chapter-4.md)
+
