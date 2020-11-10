@@ -38,3 +38,9 @@ I take off my back pack and wafting a the manly smell of old spice her way. My c
 “Some people call me Gregory”
 “That cool I am sure we will here all about it when you introduce yourself before class, we have a few new students this year.  Of course not me I’ve been here my whole life that’s why I help out the teacher. I even get to go to the principles office for important messages.”
 My confidence now reaches its opposing nadir and I can feel the stress sweat forming.
+
+
+
+[Chapter 4](chapter-4.md)
+
+[Home](README.md)
