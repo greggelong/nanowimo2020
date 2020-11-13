@@ -2,6 +2,7 @@
 National Novel Writing Month 2020
 
 
+
 You are inside.  I am outside.
 I am not going to tell you directly how to get out. I couldn’t even if I wanted to.  The path has to be generated in real time taking into account information I, on the outside, cannot access.  I can help you form a plan. But it is really up to you.
 
@@ -14,4 +15,6 @@ I am not going to tell you directly how to get out. I couldn’t even if I wante
 [Chapter 3](chapter-3.md)
 
 [Chapter 4](chapter-4.md)
+
+[The Space of all Storyies](https://greggelong.github.io/story-space/)
 
