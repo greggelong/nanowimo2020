@@ -16,5 +16,5 @@ I am not going to tell you directly how to get out. I couldn’t even if I wante
 
 [Chapter 4](chapter-4.md)
 
-[The Space of all Storyies](https://greggelong.github.io/story-space/)
+[The Space of all Stories](https://greggelong.github.io/story-space/)
 
