@@ -16,7 +16,7 @@ I am not going to tell you directly how to get out. I couldn’t even if I wante
 
 [Chapter 4](chapter-4.md)
 
-Read a randomly generated tangents of this story at the:
+Read randomly generated tangents of this story at:
 
 [The Space of all Stories](https://greggelong.github.io/story-space/)
 
