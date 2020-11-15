@@ -20,3 +20,5 @@ Read randomly generated tangents of this story at:
 
 [The Space of all Stories](https://greggelong.github.io/story-space/)
 
+[Play the text-adventure game](https://greggelong.github.io/winona/)
+
